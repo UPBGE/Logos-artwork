@@ -1,0 +1,1 @@
+Here are some ideas about how to give to the UPBGE somekind of personnal graphical identity. So if you are interested about posting artworks or dicussing about possible UPBGE logos, please constact me (alexis.gros99@gmail.com) or panzergame (tristan@upbge.fr)
